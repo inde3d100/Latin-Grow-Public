@@ -1,0 +1,81 @@
+---
+related:
+  - "[[20.01.05_What_is_Latin Grow?]]"
+  - "[[What is Rhythm and Body?]]"
+  - "[[Theory]]"
+---
+
+
+# Personalised Teacher Training for Rhythm and Body Salsa social dance education and Overall Health Improvement
+
+## Module 1: Foundations of Dance and Movement Education
+1.1: Dance, Movement, and Health
+	1.1.1: Dance and Mental Health: Emotional Expression through Movement
+	1.1.2: Dance and Physical Health: Building Stamina and Flexibility
+1.2: Embracing Personalisation: Tailoring Dance Education for Every Learner
+
+## Module 2: Kinesthetics: The Body in Dance
+2.1: Unlocking the Base: Pelvis movement and Afro Movement
+2.2: The Art of Fluid Motion: Mastering Core movement in Salsa Sequences
+2.3: The advanced moves for mastering body movement and flow in Salsa dancing
+
+## Module 3: Crafting a Beginner's Experience
+3.1: The Challenges and Joys of Teaching Beginners
+3.2: Designing a Comprehensive Beginner's Class
+	3.2.1: Practical Workshop: Crafting an Engaging Beginner’s Session
+3.3: Introducing Salsa and Its Relatives: [[Rhythmology Weeks]]
+3.4: Rhythmical instruments
+	3.4.1: How to introduce them to the beginners step by step
+3.5: The 5 basic moves for developing body movement in Salsa dancing
+
+## Module 4: Mastering Personalised Teaching Techniques
+4.1: Reading Students: Identifying Needs and Aspirations
+4.2: Adaptive Techniques for Diverse Learners
+	4.2.1: [[Learning Types]] - Strategies for Each Learner Type
+4.3: Cultivating Creativity: Empowering Students to Innovate in Dance
+
+## Module 5: The Dynamics of Dancing in Couples
+5.1: The Beauty of Dancing in Couples
+5.2: Leaders and Followers: Roles, Responsibilities, and Techniques
+	5.2.1: Practical Workshop: Leading with Confidence
+	5.2.2: Practical Workshop: Following with Grace
+
+## Module 6: Rhythmology Weeks - Diving Deep into Styles
+6.1: The Essence of Rhythmology in Salsa
+6.2: Curating a Rhythmic Journey: From Son to Rumba
+	6.2.1: Practical Session: Transitioning Between Rhythms with Ease
+
+## Module 7: Ensuring Continuous Growth and Feedback
+7.1: Implementing Continuous Feedback Loops for Teachers
+7.2: Assessment Techniques for Teacher Progress
+7.3: Building a Community: Encouraging Peer Learning and Exchange
+
+## Module 8: Solo Dance Interpretation
+8.1: Rhythmic Interpretation 8.1.1: Understanding Salsa Rhythm Instruments
+	Campana: The Voice of Salsa Rhythm
+	Clave: The Heartbeat of Salsa
+	Conga: The Pulse of Dance
+	Bass: The Rhythmic Foundation
+	8.1.2: Transitioning Between Rhythmic Instruments: The Dance Dialogue
+    8.1.3: Practical Workshop: Interpreting and Teaching Rhythm in Solo Dance
+    8.1.4: Advanced Rhythmic Interpretation Techniques for Choreography
+    8.2: Melodic Interpretation
+        8.2.1: Identifying Melodic Sections in Salsa Music
+        8.2.2: Practical Workshop: Interpreting and Teaching Melody in Solo Dance
+        8.2.3: Advanced Melodic Interpretation Techniques for Choreography
+
+## Module 9: Cultural Appreciation and History
+9.1: Exploring the roots of salsa: Historical and Cultural Significance
+9.2: Understanding afro latin influence: Impact on Salsa Dance and Music
+9.3: Comprehensive Theory of Salsa
+	9.3.1: Timing and Rhythm in Salsa Music
+	9.3.2: Key Instruments and Their Roles
+	9.3.3: Historical Evolution and Cultural Roots
+	9.3.4: Understanding Afro Latin Influences on Rhythm
+## Module 10: Musicality in Dance
+10.1: Rhythmic Awareness: Connecting Movement to Music in Salsa
+10.2: Musical Interpretation: Expressing Emotions through Dance
+	10.2.1 [[Dance Interpretations]]
+
+---
+
