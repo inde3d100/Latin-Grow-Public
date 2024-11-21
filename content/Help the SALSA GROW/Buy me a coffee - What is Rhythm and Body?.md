@@ -1,6 +1,8 @@
+link: https://bit.ly/3PHx7qF
+related: 
+
 ---
-url: https://bit.ly/3PHx7qF
----
+
 **Rhythm and Body, educational methodology is designed to help students develop the skills and confidence they need to feel secure and enjoy dancing with anyone on the dance floor. As members of my "Buy Me a Coffee" membership program, students will have access to private online lessons as well as free face-to-face classes, which are the most important and valuable part of my teaching.** I am dedicated to providing personalised support and attention to each student as they work towards their social dance development goals.
 
 As a dance educator, I understand that every person learns differently. Some of the challenges students face include:

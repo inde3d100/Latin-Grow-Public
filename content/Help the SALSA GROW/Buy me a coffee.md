@@ -1,3 +1,8 @@
+link: https://bit.ly/3HNUBIW
+related: 
+
+---
+
 **What You Get by Becoming a Member:**
 
 - **Exclusive Tutorials**: Your support will grant you access to a teaching video once per week.

@@ -1,3 +1,6 @@
+related: #concept 
+
+---
 **Introduction to Rhythmology Weeks**
 
 Rhythmology Weeks are a structured, immersive experience designed to deepen your understanding and mastery of Latin dances. Each week, before the new week begins, we will announce the specific focus areas and styles that will be explored. This approach ensures that dancers are well-prepared and can fully engage with the material. The goal is to provide a comprehensive education in various aspects of Latin dance, enhancing both technical skills and cultural appreciation.

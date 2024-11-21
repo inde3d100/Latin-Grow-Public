@@ -1,7 +1,7 @@
 ---
 related:
-  - "[[Latin_Grow_keynote]]"
-  - "[[What is Rhythm and Body?]]"
+  - "[[0.01 Latin_Grow_keynote]]"
+  - "[[01 What is Rhythm and Body?]]"
 ---
 
 

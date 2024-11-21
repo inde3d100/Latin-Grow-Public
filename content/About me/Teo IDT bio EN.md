@@ -1,3 +1,6 @@
+related: [[00 What is Latin Grow?]], [[01 What is Rhythm and Body?]]
+
+---
 Two decades ago, Teo stumbled upon salsa dancing by pure chance. From that moment, he knew he had found a lifelong passion. Beginning his journey in Sofia, Teo's thirst for knowledge led him to travel the world, attending countless festivals and learning from the best in the industry. His dedication took him to Milan, where he studied under the maestro Fernando Sosa of Tropical Gem, gaining invaluable insights and techniques.
 
 Teo's teaching style reflects his belief in the uniqueness of every individual. Recognizing that each dancer has their own needs, he developed "Rhythm and Body" (RAB), a personalized methodology that promises to get novices dancing in as little as three months. By limiting class sizes, Teo ensures tailored feedback for each student, catering to auditory, kinesthetic, and visual learners. His approach contrasts with the robotic memorization seen in many dance classes. Instead, “Rhythm and Body” equips students with a repertoire of moves, encouraging them to craft their own dance stories and add their personal "spice."

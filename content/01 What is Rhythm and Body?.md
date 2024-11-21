@@ -2,7 +2,7 @@
 
 Rhythm and Body is a cutting-edge salsa dance education program catering to individuals of all ages and backgrounds, with a special focus on first-year university students. Our mission is to help students develop their dance skills alongside their academic pursuits and provide them with a secondary profession in the form of salsa dancing.
 
-> Distinctive [[Methodology]] 
+> Distinctive [[01.01 Methodology]] 
    
 Our unique methodology fuses dance techniques with innovative concepts such as:
 
