@@ -1,4 +1,5 @@
-related: [[00 What is Latin Grow?]], [[01 What is Rhythm and Body?]]
+related: [[00 What is Latin Grow?]] | [[01 What is Rhythm and Body?]]
+url: https://bit.ly/3jjQaeV
 
 ---
 Two decades ago, Teo stumbled upon salsa dancing by pure chance. From that moment, he knew he had found a lifelong passion. Beginning his journey in Sofia, Teo's thirst for knowledge led him to travel the world, attending countless festivals and learning from the best in the industry. His dedication took him to Milan, where he studied under the maestro Fernando Sosa of Tropical Gem, gaining invaluable insights and techniques.

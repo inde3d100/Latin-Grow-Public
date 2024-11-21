@@ -1,10 +1,7 @@
----
-related:
-  - "[[0.01 Latin_Grow_keynote]]"
-  - "[[01 What is Rhythm and Body?]]"
----
+related: [[01 What is Rhythm and Body?]] | [[0.01 Latin_Grow_keynote]]
+url: https://bit.ly/3SvJvO6
 
-
+---
 ## What is Latin Grow?
 Latin Grow is a movement. When someone asks me if it is mine, the answer is that everyone who is going through the dance education "Rhythm and Body" or is interested in Salsa Social Dancing, good music, pure communication, and has a will for growth in the art of social dancing, is the owner and representative.
 

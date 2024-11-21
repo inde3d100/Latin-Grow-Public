@@ -1,5 +1,5 @@
 link: https://bit.ly/3Qs5lyM
-related: [[Buy me a coffee]], [[Buy me a coffee - What is Rhythm and Body?]]
+related: [[Buy me a coffee]] | [[Buy me a coffee - What is Rhythm and Body?]]
 
 ---
 
