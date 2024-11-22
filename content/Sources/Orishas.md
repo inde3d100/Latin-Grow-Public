@@ -1,0 +1,67 @@
+related: [[01.02 Theory]]
+
+---
+- ## Elegua
+    - Elegua (also spelled Eleggua) is an Orisha, a deity of roads in the Yoruba religion, which is practiced in Africa, the Caribbean, and parts of North and South America. Elegua is known as the gatekeeper between the mortal and divine worlds and is also the first Orisha to be invoked in a ceremony. He's most often represented as a child and symbolizes the beginning and end of life. Offerings to Elegua include items such as candy, cigars, and rum.
+    - ### Videos
+        - [**Yusimi Moya Rodriguez tanzt ¿Y qué tú quieres que te den? - ELEGGUA**](https://youtu.be/dMOIc33Pg8M?si=VB1z-g3tukC8B1AB&t=276)
+        - [**Chacalokafun Yeni Molinet @HEB 2019 - ELEGUA**](https://youtu.be/mZf-av9Jw5I?si=3ANQbR8xWvEaAmiH&t=238)
+        - [Melissa Noventa - Afro-Cuban Workshop (Eleggua)](https://www.youtube.com/watch?v=7FgcGEuHB4o)
+        - [**Eleggua, explanation, Yusimi Moya Rodriguez, Cuban Salsa Festival Graz 2019**](https://www.youtube.com/watch?v=OuOlJx4gIYQ)
+- ## Obbatala
+    - Obatala is an orisha in the Yoruba religion known as the "sculptor of mankind". Traditionally believed to have been tasked with creating the Earth, but failing due to intoxication with palm wine, he was instead given the responsibility of creating humans. Despite his initial failures due to his continued intoxication which led to the creation of humans with disabilities, he vowed to never drink again and reinvented himself as "The Great White God", protector of people with disabilities. In the oral traditions of Ife, the mortal Obatala founded and ruled over the city during its classical period, his successful leadership leading to his deification in the Yoruba pantheon after his death.
+    - ### Videos
+        - [Yusimi Moya Rodriguez tanzt ¿Y qué tú quieres que te den? - OBBATALA](https://youtu.be/dMOIc33Pg8M?si=vxvavRO2dAkG3HgD&t=294)
+- ## Yemaya
+    - Yemọja, also known as Yemaja, Yemanjá, Yemoyá or Yemayá, is a major water spirit in the Yoruba religion. Considered the mother of all Orishas and of humanity, she is often associated with rivers, particularly the Ogun River in Nigeria, and oceans in Cuban and Brazilian orisa religions. Yemọja is known to be motherly, protective, capable of curing infertility in women, and is represented by cowrie shells signifying her wealth. She is usually depicted as a mermaid and is associated with the moon, water, and feminine mysteries. In mythology, it is said that when her waters broke, it caused a great flood, creating rivers and the first humans.
+    - ### Videos
+        - [Yusimi Moya Rodriguez tanzt ¿Y qué tú quieres que te den? - YEMAYA](https://youtu.be/dMOIc33Pg8M?si=L8Xo3rm4q8h9C49k&t=335)
+        - [Chacalokafun Yeni Molinet @HEB 2019 - YEMAYA](https://youtu.be/mZf-av9Jw5I?si=e-IpyATvNK2maF6e&t=303)
+        - [**Yemaya, Explanation, Yusimi Moya Rodriguez**](https://www.youtube.com/watch?v=U6k0-TajV8w)
+- ## Oya
+    - Ọya is a powerful Orisha worshipped in the Yoruba religion. She is known as the goddess of winds, lightning, and violent storms. As a river deity, Oya is also considered a deity of children. She symbolizes change and transformation. Devotees of Oya are widespread, especially in Yoruba lands like Nigeria, Benin, and Togo. Her attributes are vividly depicted in art, literature, and even cultural festivals. Apart from her role as a naturistic deity, Oya is also revered for her ability to provide clarity and insight through divination.
+    - ### Videos
+        - [Yusimi Moya Rodriguez tanzt ¿Y qué tú quieres que te den? - OYA](https://youtu.be/dMOIc33Pg8M?si=jX9I50PXWSZZh70z&t=360)
+        - [Chacalokafun Yeni Molinet @HEB 2019 - OYA](https://youtu.be/mZf-av9Jw5I?si=PAZJzAnvBnN7vXWU&t=279)
+        - [Clase de Afro Cubano: Orisha Oya](https://www.youtube.com/watch?v=vdVLQkOIgYs)
+- ## Oggun
+    - Ogun, also known as Ogoun or Ogum, is a spirit that appears in several African religions including the Yoruba religion, Haitian Vodou, West African Vodun, and Gbe people religion. He is recognized as a warrior and a powerful spirit of metal work, rum, and rum-making. Known as the "god of iron", Ogun attempted to seize the throne in Yoruba mythology after the reign of Ọbàtálá, but was ousted, leading to his exile—an event commemorated in the Ọlọ́jọ́ Festival.
+    - ### Videos
+        - [Yusimi Moya Rodriguez tanzt ¿Y qué tú quieres que te den? - OGGUN](https://youtu.be/dMOIc33Pg8M?si=jrRVfAo0yanDl1EO&t=394)
+        - [Chacalokafun Yeni Molinet @HEB 2019 - OGGUN](https://youtu.be/mZf-av9Jw5I?si=bgHSBrM20RhH7oSX&t=255)
+        - [**Ogun con Yusimi Moya Rodriguez, Tower Cafe Graz**](https://www.youtube.com/watch?v=G3gac5jl9Yk)
+- ## San Lazaro / Babalu Aye
+    - Babalú-Aye, also known as Obalúayé, Oluaye, Ṣọpọna, or Obaluaiye, is one of the orishas or manifestations of the supreme creator god Olodumare in the Yoruba religion. He is the spirit of the Earth and is strongly associated with infectious diseases and healing. Babalú-Aye is always close to Iku, the force responsible for taking life, and he promotes healing for those who are close to death. Despite his healing powers, he is feared by some as he is believed to bring diseases upon humans. His cult powers are used against all kinds of diseases, but specifically skin, inflammation, and airborne diseases. Heat is also a property of Babalu-aye, which is essential in healing fever or diseases.
+    - ### Videos
+        - [Yusimi Moya Rodriguez tanzt ¿Y qué tú quieres que te den? - SAN LAZARO /BABALU AYE](https://youtu.be/dMOIc33Pg8M?si=B8zisvxse4DXVU5s&t=428)
+- ## Palo
+    - Orishas and Palo are distinct but interrelated elements in Afro-Cuban religious practices. Orishas refers to various godly entities in Yoruba and related African diasporic religions such as Regla de Ocha and Santería. Palo, also known as Las Reglas de Congo, is another religion that developed in Cuba, characterized by its necromantic element. Palo and Orisha-based religions have areas where they overlap and interact, although they also have unique features and practices. For instance, in Palo Mayombe, there's an understanding of working with mpungos, which have some parallels with orishas.
+    - ### Videos
+        - [Clase de Afro Cubano (Palo-Congo Workshop) por Jorge Luis Fernandez and Indira Mora](https://www.youtube.com/watch?v=BZoH7pt2Vaw)
+        - [Yusimi Moya Rodriguez tanzt ¿Y qué tú quieres que te den? - PALO](https://youtu.be/dMOIc33Pg8M?si=dTvUDOSL_E7e-3NU&t=462)
+        - [CIT- Palo - Yusimi Moya Rodriguez](https://www.youtube.com/watch?v=_1GOSC6vCtc)
+        - [PALO - Afro-Cuban Dance and Music](https://www.youtube.com/watch?v=WYrGt-inNVk&list=PL8hFYIpg2Jp0TyEze1gs8tL_hDd53KHui)
+- ## Oshun
+    - Oshun (known as Ochún or Oxúm in Latin America) is one of the deities thought of in the Yoruba religion as one of the Orishas. She is revered as the goddess of love, fertility, and rivers. Oshun is associated with the color yellow, metal brass, peacock feathers, mirrors, honey, and anything of beauty, her symbols are the mirror, the fan, the butterfly, the number 5, the moon, and the copper metal. Oshun is also believed to be the deity of the Osun River in Nigeria, and the annual Osun-Osogbo festival held in August at the river attracts thousands of believers and tourists. According to Yoruba traditions, Oshun is prominent as the deity who has done a lot of favor for other divinities.
+    - ### Videos
+        - [Yusimi Moya Rodriguez tanzt ¿Y qué tú quieres que te den? - OSHUN](https://youtu.be/dMOIc33Pg8M?si=gmgN2V2ruMmCYoYc&t=533)
+        - [Chacalokafun Yeni Molinet @HEB 2019 - OSHUN](https://youtu.be/mZf-av9Jw5I?si=JGWWbOLDJKKNXno9&t=261)
+        - [**Orisha Oshun Dance from Cuba**](https://www.youtube.com/watch?v=2yFUouzE7Yk)
+        - [**Ochun with Yusimi Moya Rodriguez 🔥 AhoraSi vol. 2! - Cuban Salsa Minifestival 🇨🇺🇵🇱**](https://www.youtube.com/watch?v=buMdvd-V7WM)
+- ## Shango
+    - Shango (also spelled Sango or Changó) is one of the most well-known and venerated orishas in Yoruba religion. He is often referred to as the god of thunder, lightning, fire, war, and the drum. Characterized as a powerful but temperamental ruler, Shango has the power to bring good fortune or great misfortune based on his mood or the respect given to him. He is linked with the color red, the double-headed axe symbol, and his sacred number is 6. Shango's followers believe that lightning and thunder are signs of his anger and that he can cause storms to wreak havoc, which is why they seek his approval through prayers, offerings, and dances.
+    - ### Videos
+        - [CHANGO 3: Eni Alado](https://www.youtube.com/watch?v=xMiIq7eiV-s)
+        - [SHANGO | META | AFROCUBANONLINE STEP BY STEP | FREE DANCE CLASS| Alfredo Garcia](https://www.youtube.com/watch?v=WXDd79W5uKw)
+        - [Yusimi Moya Rodriguez tanzt ¿Y qué tú quieres que te den? - SHANGO](https://youtu.be/dMOIc33Pg8M?si=R1diIAnzJi-24aK_&t=568)
+        - [Shango con Yusimi Moya Rodriguez, Tower Cafe Graz](https://www.youtube.com/watch?v=t-jKEqaftZU)
+        - [Chacalokafun Yeni Molinet @HEB 2019 - SHANGO](https://youtu.be/mZf-av9Jw5I?si=mHK3JkEoKNA3VpEE&t=314)
+        - [Shango, explanation, Yusimi Moya Rodriguez, Cuban Salsa Festival Graz 2019](https://www.youtube.com/watch?v=Bflgc9FKhP0)
+- ## Other Videos
+    - [**Makuta, explanation, Yusimi Moya Rodriguez, Cuban Salsa Festival Graz 2019**](https://www.youtube.com/watch?v=b0VCaqDQySU)
+    - [**Iba Orisha - Yoruba Dances from Cuba**](https://www.youtube.com/watch?v=AoSjzIVAtEo)
+    - [**Cuban Contemporary Dance Technique**](https://www.youtube.com/watch?v=eN6JjTSGl-I)
+- ## Music
+    - [Y Que Tu Quieres Que Te Den](https://tidal.com/browse/track/48498366) - [VIDEO!!!!](https://www.youtube.com/watch?v=dMOIc33Pg8M)
+    - [Orishas](https://drive.google.com/drive/folders/0B97x8pM4tMdhVUlIRklnaVIxUkk?resourcekey=0-rn9WrqCdVPBDn3ofrJFYRA&usp=drive_link)
+    - [Palo](https://drive.google.com/drive/folders/0B97x8pM4tMdhWHdPUk1oSmJRVTA?resourcekey=0-6jIOP0UDtcH7L-YYICyhig&usp=drive_link)
