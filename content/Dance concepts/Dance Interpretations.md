@@ -1,4 +1,4 @@
-related: #concept 
+related: #concept | [[index|Home]]
 
 ---
 # Rhythmical Interpretation

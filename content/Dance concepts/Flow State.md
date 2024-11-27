@@ -1,4 +1,4 @@
-related: #concept 
+related: #concept | [[index|Home]]
 
 ---
 Flow is often described as a state of 'effortless effort.' You feel like you're being propelled through the activity, and everything else just disappears. Time dilates, meaning it passes strangely—five hours can feel like five minutes. Sometimes, it even slows down, giving you a freeze-frame effect, like in a car crash. Intuition gets turned up; think of a basketball player in the zone, seeing the hoop as big as a hula hoop. Your frown muscles tend to paralyze because your brain is working hard.

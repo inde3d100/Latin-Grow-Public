@@ -1,4 +1,4 @@
-related: #concept 
+related: #concept  [[index|Home]]
 
 ---
 The three-anchor somatic learning method can be effectively applied to salsa social dancing to enhance a student's body awareness and dance performance. Salsa, as a dance form, inherently requires a deep connection between the mind, body, and the rhythm of the music. By using the three anchors—awareness, integration, and application—a student can achieve significant improvements in their dance skills and body awareness. Here's how:

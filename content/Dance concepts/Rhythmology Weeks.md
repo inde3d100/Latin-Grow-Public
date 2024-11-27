@@ -1,4 +1,4 @@
-related: #concept 
+related: #concept | [[index|Home]]
 
 ---
 **Introduction to Rhythmology Weeks**

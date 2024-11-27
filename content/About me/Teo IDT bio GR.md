@@ -1,4 +1,4 @@
-related: [[00 What is Latin Grow?]] | [[01 What is Rhythm and Body?]]
+related: [[00 What is Latin Grow?]] | [[01 What is Rhythm and Body?]] | [[index|Home]]
 url: https://bit.ly/3jjQaeV
 
 ---

@@ -1,4 +1,4 @@
-related: [[01 What is Rhythm and Body?]] | [[0.01 Latin_Grow_keynote]]
+related: [[01 What is Rhythm and Body?]] | [[0.01 Latin_Grow_keynote]] | [[index|Home]]
 url: https://bit.ly/3SvJvO6
 
 ---

@@ -1,5 +1,5 @@
 link: https://bit.ly/3Cqux5V
-related: [[Buy me a coffee]]
+related: [[Buy me a coffee]] | [[index|Home]]
 
 ---
 
