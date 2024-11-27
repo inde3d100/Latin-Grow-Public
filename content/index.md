@@ -1,5 +1,5 @@
 ---
-title: Welcome to Latin Grow public graph
+title: Welcome to the Latin Grow public graph
 ---
 # Start Here
 --- 
