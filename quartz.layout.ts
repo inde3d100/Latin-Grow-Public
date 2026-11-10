@@ -8,7 +8,6 @@ export const sharedPageComponents: SharedLayout = {
   afterBody: [],
   footer: Component.Footer({
     links: {
-      "Inde3d100.xyz": "https://inde3d100.xyz",
       GitHub: "https://github.com/inde3d100/Latin-Grow-Public",
     },
   }),
